@@ -1,0 +1,1 @@
+# magazin.san.github.io
